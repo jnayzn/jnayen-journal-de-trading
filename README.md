@@ -1,0 +1,1 @@
+# Jnayen Journal de Trading
